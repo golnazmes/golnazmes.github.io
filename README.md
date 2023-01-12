@@ -1,1 +1,0 @@
-# golnazmes.github.io
